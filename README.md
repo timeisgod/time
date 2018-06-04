@@ -1,4 +1,4 @@
-# 2018-6-04  the Bedroom
+# 2018-6-04  the Bedroom<br>
 My bed is nice and soft.
 I have a pretty bedspread on my bed.
 I have sheets and a blanket on my bed also.
