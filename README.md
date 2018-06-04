@@ -1,5 +1,5 @@
 # 2018-6-04  the Bedroom
-My bed is nice and soft.</br>
+My bed is nice and soft.
 I have a pretty bedspread on my bed.
 I have sheets and a blanket on my bed also.
 I use two feather pillows.
