@@ -21,13 +21,7 @@ My bedroom is very cozy.<br/>
 At night,I turn off the lamp and get under covers.<br/>
 I set my alarm clock at seven O'clock.<br/>
 I lay my head on the pillow,and I fall asleep.<br/>
-[make big money fast](script(async src="//pagead2.googlesyndication.com/pagead/js/adsbygoogle.js")
-
-script(adsbygoogle = window.adsbygoogle || []).push({
-          google_ad_client: "ca-pub-5746257478481402",
-          enable_page_level_ads: true
-     });
-);
+[make big money fast](
 )<br/>
 ![](http://www.caibian.net/wp-content/uploads/2018/05/103K51635-0.jpg)
 
